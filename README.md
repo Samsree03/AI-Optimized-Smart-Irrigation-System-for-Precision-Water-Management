@@ -1,0 +1,1 @@
+# AI-Optimized-Smart-Irrigation-System-for-Precision-Water-Management
